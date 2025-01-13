@@ -10,3 +10,13 @@ they/them only if were oomfs / green names ^_^
 
 im in a lot of fandoms... :::::::
 lifesteal smp, bliss smp, kaboodle smp, gensis smp, unstable universe, inanimate insanity, bfdi, tnm, twr, bfb, ppt2, hfjone (+ other object shows), dead plate, cold front, married in red, elevator hitch, bittersweet sentence, boss fighting stages, ocean terror, regretevator, trud, forsaken, foo12, normal elevator, robloxware, kaleidoscope, ++ other roblox myths, phighting, project sekai, katieverse + fundamental paper education, AND MORE just ask me
+
+im a biggg stomach book fan.. #1 favorite song is anarchy!!!! and um animals.then playing pretend then fukouna girl and MORE ummmm
+
+EVEN THO WERE A SYSTEM we normally use singular terms!!
+
+heavy fragment and introject meow meow
+
+diagnosed osdd-1b system,, traumagenic
+
+other than stomach book i also love toplind addicts!!and puzzle <33 theyre
