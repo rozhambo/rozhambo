@@ -1,4 +1,4 @@
-hi hello
+hi hello ... rentry is still currently in progress :'( if u want to see rhe um... unfinished rentry just go to .co/glaciershardsystem
 
 lantern or niko ,,,,, or hosts + co-hosts names.
 
