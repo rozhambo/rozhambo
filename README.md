@@ -1,4 +1,4 @@
-im out on the block again, so hopped up that i cant pretend, two time!
+DO NOT TAKE INSPO OR COPY MY SKINS WITHOUT PERMISSIONS / CONSENT . I WILL NOT HESITATE TO BLOCK YOU PERMANENTLY!
 
 hi im lantern.or niko or grunk.or my current nickname idk
 
