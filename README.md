@@ -1,7 +1,5 @@
 im out on the block again, so hopped up that i cant pretend, two time!
 
-shout out to my goats😎😎 @PHOTONLASER
-
 hi im lantern.or niko or grunk.or my current nickname idk
 
 hxr/hym/it friends only they/them
