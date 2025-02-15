@@ -1,1 +1,1 @@
-![ic by ezrasasleep in tt](https://lh3.googleusercontent.com/pw/AP1GczOZQRMUhRaazrQQLWpXzdmeYwC7QTnCVndO0kWwX1F9uM7f_mnIr501mboadOSsthcVcrmMsA8fiO1UV4XwztJyKMPXd7zrnNDpyNydBo1gg9saQrLIDcIlEL2bpky18nmsjDKH0US_3sDNM-j0VvtYLQ=w314-h240-s-no-gm?authuser=0)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ag3zycpheqqa6ligeltorav3q4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=625a8c&interchange=true&bar_color=8880d1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
