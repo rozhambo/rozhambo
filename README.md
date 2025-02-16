@@ -1,4 +1,4 @@
-IM.the number 1 roshambogames enjoyer lover and fan. DO NOT.take him away from me 👨‍❤️‍💋‍👨👨‍❤️‍💋‍👨👨‍❤️‍💋‍👨 i AM roshambo irl
+big lifesteal smp fan👅
 
 ![](https://komarev.com/ghpvc/?username=rozhambo&color=bba5d9)
 
