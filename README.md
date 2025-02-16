@@ -1,4 +1,5 @@
 big lifesteal smp fan👅
+i dont support brian bell.i just like weezer
 
 ![](https://komarev.com/ghpvc/?username=rozhambo&color=bba5d9)
 
