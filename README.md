@@ -1,5 +1,10 @@
-big lifesteal smp fan👅
-i dont support brian bell.i just like weezer
+#1 roshambogames fan hes MINE
+#1 roshambo glazer
+#1 roshambo lover
+#1 roshambo liker
+#1 roshambo watcher
+
+i love roshambogames<3
 
 ![](https://komarev.com/ghpvc/?username=rozhambo&color=bba5d9)
 
